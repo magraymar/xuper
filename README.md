@@ -4,5 +4,4 @@
 * VPN Pro: https://drive.google.com/file/d/1lh9Cs8nt37ruK43GOJYotYEreINBFEfW/view?usp=sharing
 * Turbo VPN: https://drive.google.com/file/d/1vU2v5V9o0IlxDsXw_ewbc5R3FeC6i3hb/view?usp=sharing
 * World VPN: https://drive.google.com/file/d/1OEBQCbZF4ySsuR5cLLmhF2WfveIs_oX6/view?usp=sharing
-* Surfshark VPN: https://drive.google.com/file/d/1mGJWXqVvMRQekyobC8bMltNRx6vYucKl/view?usp=sharing
 * Super VPN Proxy: https://drive.google.com/file/d/1U4_lPAWEkXcn6FBxfsx3JK_WtJ6P8xHj/view?usp=sharing
